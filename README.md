@@ -1,1 +1,0 @@
-# proyectomaquillajedavid.github.io
